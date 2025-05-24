@@ -1,4 +1,6 @@
-Voici un dossier détaillé visant à documenter les raisons pour lesquelles le groupe **Nouvelle Alliance** devrait être exclu du mouvement souverainiste québécois. Ce dossier s'appuie sur des sources fiables et des analyses critiques.
+[![Nouvelle Alliance : unir les jeunes ...](https://images.openai.com/thumbnails/16bbf93b2fe4301067893fa110bc85f8.jpeg)](https://pivot.quebec/2023/10/26/nouvelle-alliance-unir-les-jeunes-independantistes-derriere-un-nationalisme-identitaire/)
+
+Voici un dossier approfondi visant à documenter les raisons pour lesquelles le groupe **Nouvelle Alliance** devrait être exclu du mouvement souverainiste québécois. Ce dossier s'appuie sur des sources fiables et des analyses critiques.
 
 ---
 
@@ -12,23 +14,23 @@ Voici un dossier détaillé visant à documenter les raisons pour lesquelles le 
 
 ### 1. **Liens avec l'extrême droite et le néonazisme**
 
-* Plusieurs membres clés de NA, tels que François Gervais, Suleyman Ennakhili et Jean-Philippe Desjardins-Warren, sont issus du **Front canadien-français**, un groupuscule ultracatholique identitaire. ([Montréal-Antifasciste][1])
+* Plusieurs membres clés de NA, tels que François Gervais, Suleyman Ennakhili et Jean-Philippe Desjardins-Warren, sont issus du **Front canadien-français**, un groupuscule ultracatholique identitaire.&#x20;
 
-* Les abonnés de la page Instagram de NA incluent des collectifs fascistes, royalistes, identitaires ou anti-immigration de différentes villes de la francophonie, tels que le **Bloc Montpelliérain**, l’**Action Française Paris**, **Novelum Carcassonne** et **Hélix Dijon**. ([Montréal-Antifasciste][1])
+* Les abonnés de la page Instagram de NA incluent des collectifs fascistes, royalistes, identitaires ou anti-immigration de différentes villes de la francophonie, tels que le **Bloc Montpelliérain**, l’**Action Française Paris**, **Novelum Carcassonne** et **Hélix Dijon**.&#x20;
 
-* Des figures néonazies bien connues, comme **Shawn Beauvais-MacDonald** et **David Leblanc**, ont participé à des événements organisés par NA. ([Montréal-Antifasciste][1])
+* Des figures néonazies bien connues, comme **Shawn Beauvais-MacDonald** et **David Leblanc**, ont participé à des événements organisés par NA.&#x20;
 
 ### 2. **Discours identitaire et xénophobe**
 
-* NA revendique explicitement un droit de priorité et de supériorité nationale de la majorité historique québécoise de souche canadienne française. ([Montréal-Antifasciste][2])
+* NA revendique explicitement un droit de priorité et de supériorité nationale de la majorité historique québécoise de souche canadienne française. ([Montréal Counter-information][1])
 
-* Le groupe milite pour une réduction drastique de l'immigration afin de préserver la prédominance démographique de cette majorité historique. ([Montréal-Antifasciste][2])
+* Le groupe milite pour une réduction drastique de l'immigration afin de préserver la prédominance démographique de cette majorité historique. ([Montréal Counter-information][1])
 
-* NA est accusée de promouvoir des idées proches de la théorie du « grand remplacement », une idéologie d'extrême droite. ([observatoirequebecoisdufascisme.org][3])
+* NA est accusée de promouvoir des idées proches de la théorie du « grand remplacement », une idéologie d'extrême droite.&#x20;
 
 ### 3. **Esthétique et actions inspirées de l'extrême droite**
 
-* NA a organisé des veillées aux flambeaux et des cérémonies commémoratives en hommage à des figures historiques québécoises, rappelant l'esthétique de groupes d'extrême droite tels qu'**Atalante**. ([Wikipédia][4])
+* NA a organisé des veillées aux flambeaux et des cérémonies commémoratives en hommage à des figures historiques québécoises, rappelant l'esthétique de groupes d'extrême droite tels qu'**Atalante**.&#x20;
 
 * Le groupe a mené des actions symboliques, telles que l'apposition de collants « ARRÊT » sur des panneaux « STOP » dans des villes bilingues, pour dénoncer l'unilinguisme anglais dans la signalisation.&#x20;
 
@@ -38,15 +40,15 @@ Voici un dossier détaillé visant à documenter les raisons pour lesquelles le 
 
 * NA affirme ne pas se situer sur l'axe gauche-droite, mais ses actions et affiliations suggèrent une orientation d'extrême droite.&#x20;
 
-* Le groupe utilise une stratégie de confusion idéologique pour attirer un public plus large, tout en promouvant des idées réactionnaires et identitaires. ([Montréal-Antifasciste][2])
+* Le groupe utilise une stratégie de confusion idéologique pour attirer un public plus large, tout en promouvant des idées réactionnaires et identitaires.&#x20;
 
 ---
 
 ## 📸 Illustrations et documents
 
-* **Cérémonie en hommage à Montcalm** organisée par NA, avec des militants tenant des flambeaux. ([Pivot][5])
+* **Cérémonie en hommage à Montcalm** organisée par NA, avec des militants tenant des flambeaux.&#x20;
 
-* **Affiches et autocollants** apposés par NA sur des panneaux de signalisation dans des villes bilingues. ([Pivot][5])
+* **Affiches et autocollants** apposés par NA sur des panneaux de signalisation dans des villes bilingues.&#x20;
 
 ---
 
@@ -54,9 +56,9 @@ Voici un dossier détaillé visant à documenter les raisons pour lesquelles le 
 
 * [Montréal Antifasciste – Campagne de visibilité de Nouvelle Alliance](https://montreal-antifasciste.info/fr/2024/09/27/a-propos-de-la-recente-campagne-de-visibilite-de-nouvelle-alliance-sur-les-campus/)
 
-* [Pivot – Nouvelle Alliance : unir les jeunes indépendantistes derrière un nationalisme identitaire](https://pivot.quebec/2023/10/26/nouvelle-alliance-unir-les-jeunes-independantistes-derriere-un-nationalisme-identitaire/)([Pivot][5])
+* [Pivot – Nouvelle Alliance : unir les jeunes indépendantistes derrière un nationalisme identitaire](https://pivot.quebec/2023/10/26/nouvelle-alliance-unir-les-jeunes-independantistes-derriere-un-nationalisme-identitaire/)
 
-* [Observatoire québécois du fascisme – Dossier Nouvelle Alliance](https://observatoirequebecoisdufascisme.org/dossiers/nouvelle-alliance/)([observatoirequebecoisdufascisme.org][3])
+* [Observatoire québécois du fascisme – Dossier Nouvelle Alliance](https://observatoirequebecoisdufascisme.org/dossiers/nouvelle-alliance/)
 
 ---
 
@@ -66,8 +68,4 @@ Les éléments présentés démontrent que **Nouvelle Alliance** adopte des posi
 
 Si vous souhaitez approfondir ce dossier ou obtenir des informations supplémentaires, n'hésitez pas à me le faire savoir.
 
-[1]: https://montreal-antifasciste.info/fr/2024/09/27/a-propos-de-la-recente-campagne-de-visibilite-de-nouvelle-alliance-sur-les-campus/?utm_source=chatgpt.com "À propos de la récente campagne de visibilité de Nouvelle Alliance sur les campus - Montréal-Antifasciste"
-[2]: https://montreal-antifasciste.info/fr/2024/05/18/nouvelle-alliance-vieilles-rengaines-que-cache-le-confusionnisme-gauchedroitisant-de-cette-jeunesse-reactionnaire/?utm_source=chatgpt.com "Nouvelle Alliance, vieilles rengaines: que cache le confusionnisme gauchedroitisant de cette jeunesse réactionnaire? - Montréal-Antifasciste"
-[3]: https://observatoirequebecoisdufascisme.org/dossiers/nouvelle-alliance/?utm_source=chatgpt.com "Nouvelle Alliance - L'observatoire québécois du fascisme"
-[4]: https://fr.wikipedia.org/wiki/Atalante_%28groupe_d%27extr%C3%AAme_droite%29?utm_source=chatgpt.com "Atalante (groupe d'extrême droite)"
-[5]: https://pivot.quebec/2023/10/26/nouvelle-alliance-unir-les-jeunes-independantistes-derriere-un-nationalisme-identitaire/?utm_source=chatgpt.com "Nouvelle Alliance : unir les jeunes indépendantistes derrière un nationalisme identitaire – Pivot"
+[1]: https://mtlcontreinfo.org/nouvelle-alliance-vieilles-rengaines-que-cache-le-confusionnisme-gauchedroitisant-de-cette-jeunesse-reactionnaire/?utm_source=chatgpt.com "Nouvelle Alliance, vieilles rengaines: que cache le confusionnisme gauchedroitisant de cette jeunesse réactionnaire? » Montréal Counter-information"

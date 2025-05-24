@@ -44,14 +44,6 @@ Introduction visant à documenter les raisons pour lesquelles le groupe **Nouvel
 
 ---
 
-## 📸 Illustrations et documents
-
-* **Cérémonie en hommage à Montcalm** organisée par NA, avec des militants tenant des flambeaux.&#x20;
-
-* **Affiches et autocollants** apposés par NA sur des panneaux de signalisation dans des villes bilingues.&#x20;
-
----
-
 ## 📚 Sources et lectures complémentaires
 
 * [Montréal Antifasciste – Campagne de visibilité de Nouvelle Alliance](https://montreal-antifasciste.info/fr/2024/09/27/a-propos-de-la-recente-campagne-de-visibilite-de-nouvelle-alliance-sur-les-campus/)

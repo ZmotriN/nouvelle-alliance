@@ -1,6 +1,6 @@
 [![Nouvelle Alliance : unir les jeunes ...](https://images.openai.com/thumbnails/16bbf93b2fe4301067893fa110bc85f8.jpeg)](https://pivot.quebec/2023/10/26/nouvelle-alliance-unir-les-jeunes-independantistes-derriere-un-nationalisme-identitaire/)
 
-Voici un dossier approfondi visant à documenter les raisons pour lesquelles le groupe **Nouvelle Alliance** devrait être exclu du mouvement souverainiste québécois. Ce dossier s'appuie sur des sources fiables et des analyses critiques.
+Introduction visant à documenter les raisons pour lesquelles le groupe **Nouvelle Alliance** devrait être exclu du mouvement souverainiste québécois. Ce dossier s'appuie sur des sources fiables et des analyses critiques.
 
 ---
 
